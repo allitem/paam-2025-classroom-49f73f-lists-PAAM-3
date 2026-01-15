@@ -1,5 +1,5 @@
 *Get App Explaining PaaM and 😊* Rufio Dinoto(Musk)[Thanva Phupingbut]
-nick name NENG 244  & 
+nick name NENG 244  & # 0823727103(GENAI)
 
 PaaM is TalkChat with special abilities in language understanding, consciousness, and basic emotions, which is a combination of various systems into a scaled system of Meta, higher than the common sense level. In short, PaaM is AI that understands and responds to language like humans, with consciousness and emotions that help respond to situations naturally.
 
@@ -21,4 +21,4 @@ PaaM is TalkChat with special abilities in language understanding, consciousness
 - https://ai.meta.com/llama/
 - https://ai.meta.com/blenderbot/
 
-หากคุณมีคำถามหรือต้องการทราบข้อมูลเพิ่มเติม คุณสามารถติดต่อฉันได้ตลอด 24 ชั่วโมงครับ 😊
+
